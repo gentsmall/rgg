@@ -1,6 +1,6 @@
 # rgg
 No nos conocimos por casualidad, 
-Fue porque desde hacía mucho nuestro destino estaba decidido.
+fue porque desde hacía mucho nuestro destino estaba decidido.
 
 No quiero olvidarte completamente y sin dejar rastro, 
 ¿Puedo continuar creyendo que nos veremos algún día?
