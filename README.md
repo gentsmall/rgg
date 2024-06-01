@@ -12,6 +12,7 @@ Desearía poder reír contigo de todo corazón,
 aunque sea un sueño que nunca se volverá realidad.
 
 Puedo ver un mañana que nos pertenezca a ti y a mí, 
+
 Y tú también lo ves, ¿verdad? Espero sea así.
 
 Quiero estar junto a ti también cuando estés triste
